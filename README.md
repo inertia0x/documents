@@ -1,4 +1,4 @@
-# **Inertia: AI-Powered Memecoin Developed by CT Degens**
+# **Inertia: Automated Prolific Intelligence**
 
 ## **Project Overview**
 
